@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **parth@raimechaero.com**
 
-- ⚡ Fun fact **I think I've blown up just my brain fuse!**
+- ⚡ Fun fact **I think I've just blown up my brain fuse!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
